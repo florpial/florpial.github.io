@@ -23,6 +23,10 @@ icon: /assets/images/icon-512.png
 #witter_username: patdryburgh
 #github_username:  patdryburgh
 
+#eklemeler
+hide_credits: true
+hide_search: true
+
 # Build settings
 markdown: kramdown
 
