@@ -15,7 +15,7 @@
 # in the templates via {{ site.myvariable }}.
 title: "Florpial'in Müsvedde Kağıtları" 
 #email: hello@patdryburgh.com
-#description: >- # this means to ignore newlines until "baseurl:"
+description: >- # this means to ignore newlines until "baseurl:"
   #An inarguably well-designed Jekyll theme.
 baseurl: "/hitchens" # the subpath of your site, e.g. /blog
 url: "https://florpial.github.io" # the base hostname & protocol for your site, e.g. http://example.com
