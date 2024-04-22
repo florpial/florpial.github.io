@@ -13,7 +13,7 @@ hiçbir şey yaratmamama sebep olarak yaratıyı baltalayan şey o değil. Üzer
 "O zaman" diyorum, "halim yok, herhalde yorugunum.". Evet evet yorgunum, yorgunluk bu. Çabucak dinlenirsem geçer. 
 Dinlenmek için acele ettiğimden dinlenemiyorum. Zaten zaman yok, zaman yok!
 
-Zaman yok. Halbuki "Yirmi üç yaş daha erken, daha vakit var; birçok şeyin tam zamanı olabilecek bir zaman." diye düşünüyorum ama sanırım inanmıyorum. 
+Zaman yok. Halbuki "Henüz daha erken, daha vakit var; birçok şeyin tam zamanı olabilecek bir zaman." diye düşünüyorum ama sanırım inanmıyorum. 
 İnanmadığımı yazarken fark ediyorum ki hiçbir şeye inanmıyorum. Bingo! Şah-mat! On ikiden vuruyorum.
 
 Bunların hepsini fark ediyorum görüldüğü üzere. Müdahil olmadıktan sonra fark etmek neye yarar? Fark edişimi hiçbir işe yaratamıyorum. 
