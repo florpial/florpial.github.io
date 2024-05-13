@@ -8,7 +8,7 @@ author: "florpial"
 Bile bile hata nasıl yapılır? Bu sorunun peşisıra avare adam tarafından çırak olarak alındım. Aynada ustamı görene kadar öğrenmeye can atacağım 
 bir zanaat.
 
-Hevesi çabuk söndü, ukala çırak. Ustamı küçümsemekten başka bir iş gelmiyor elimden. Bırak kalfalığa yükselmeyi, henüz azledilmemem bir mucize.
+Hevesi çabuk söndü, ukala çırak. Ustamı küçümsemekten başka bir iş gelmiyor elimden. Bırak kalfalığa yükselmeyi, şimdiye kadar azledilmemem bir mucize.
 Fakat şaşılacak şey: bir anlığına iyi bir çırağım, aptallık ediyorum. Zannediyorum ki avare adamın zanaatı hatalardan vücut bulmuştur. Öğrendikçe 
 anlıyorum ne kadar yanıldığımı. Öğrendikçe görüyorum ustamın samimiyetini, içtenliğini. Git gide daha çok imreniyorum ona. Avare adam gözüme zarif
 görünüyor. O kadar afallıyorum ki.
