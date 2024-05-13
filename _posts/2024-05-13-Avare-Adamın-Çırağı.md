@@ -14,7 +14,7 @@ Hatalar yüzüme yüzüme vuruluyor. Aynaya bakınca gördüğüm morluklarla do
 uzaktan yakından alakası olmayan ben bozması bir yarıgerçek.
 
 Morluklar, çürümüş deri, akan irin; kötü kokular yükseliyor, midem kalkıyor. Bu halimle bana ancak tahammül edilebilir. Peki nereye kadar? Yüzmek 
-istiyorum. Ferahlamak. Çürük deriden kurtulmak.
+istiyorum. Ferahlamak. Çürük deriden sıyrılmak.
 
 De ki; ben yüzdüm, derim yüzüldü, yüzsüzüm. Ne yazık ki bir handikap var. Yüzsüzlük; insanı etrafındaki gerçekliğin uzak tanığı yapar, gösterip 
 elletmez. Gerçekliğe dahil gibi gözüksen de oturduğun yer loca koltuğu, yukarıdan baktığın şey ise sahnedir. 
