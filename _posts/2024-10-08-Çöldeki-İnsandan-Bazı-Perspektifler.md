@@ -11,7 +11,7 @@ Saplantıların gölgesinde buz kesiyorum. Gün doğuyor, buzu eritiyor. Saplant
 kumları kaldırır. Gök sakinlediğinde kumlar yere iner, sonsuz mavi yine oradadır. Monotonluk insanı bunaltır.
 
 "Böyle bir yerde yaşam nasıl var olabilir?" sorusu, cevabını kelimelere dökmek istediğimizde bizi tatmin etmeyecek biricik sorudur.
-Kelimelerle inşaa edilen cevap yaşamadan yavan kalır. Çünkü çölde yaşam kendine sebep vardır.
+Kelimelerle inşa edilen cevap yaşamadan yavan kalır. Çünkü çölde yaşam kendine sebep vardır.
 
 Çöle giderken yanımıza almamız gereken şeyler vardır. Çöle getirilecek şeyler. Cinnet mesela. Cinnet, cenneti getiremediğimiz belli olmasın diye 
 üstünkörü paspal bir kamuflaj sağlar, işe yarar bir dikkat dağınıklığı sunar. Göğü yerden tek bir çizginin ayırdığı bir mekanda dağınıklık için 
