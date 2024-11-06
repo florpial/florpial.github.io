@@ -8,9 +8,10 @@ author: "florpial"
 Bile bile hata nasıl yapılır? Bu sorunun peşi sıra avare adam tarafından çırak olarak alındım. Aynada ustamı görene kadar öğrenmeye can atacağım 
 bir zanaat.
 
-Hevesi çabuk söndü, ukala çırak. Ustamı küçümsemekten başka bir iş gelmiyor elimden. Bırak kalfalığa yükselmeyi, şimdiye kadar azledilmemem bir mucize. Fakat şaşılacak şey: aslında özünde iyi bir çırağım çünkü aptallık ediyorum. Zannediyorum ki avare adamın zanaatı sek hatalardan vücut bulmuştur. Öğrendikçe anlıyorum ne kadar yanıldığımı. Öğrendikçe görüyorum ustamın samimiyetini, içtenliğini. Git gide daha çok imreniyorum ona. Avare adam gözüme zarif görünüyor. O kadar afallıyorum ki.
+Hevesi çabuk söndü, ukala çırak. Ustamı küçümsemekten başka bir iş gelmiyor elimden. Bırak kalfalığa yükselmeyi, şimdiye kadar azledilmemem bir mucize. Fakat şaşılacak şey: aslında özünde iyi bir çırağım çünkü aptallık ediyorum. Zannediyorum ki avare adamın zanaatı sek hatalardan vücut bulmuştur. Öğrendikçe ne kadar yanıldığımı anlıyorum. Ustamın samimiyetini ve içtenliğini görüyorum. Avare adam; şu ana kadar bildiğim tüm
+gerçekliği yıkıyor, gözüme zarif görünüyor. Usta neden? Nasıl olur?
 
-Hatalar yüzüme yüzüme vuruluyor. Aynaya bakınca gördüğüm morluklarla dolu yara bere içindeki yüz karşısında donup kalıyorum. Eğreti resim. Ustamla 
+Cevaben hatalar yüzüme yüzüme vuruluyor. Aynaya bakınca gördüğüm morluklarla dolu yara bere içindeki yüz karşısında donup kalıyorum. Eğreti resim. Ustamla 
 uzaktan yakından alakası olmayan ben bozması bir yarıgerçek.
 
 Morluklar, çürümüş deri, akan irin; kötü kokular yükseliyor, midem kalkıyor. Bu halimle bana ancak tahammül edilebilir. Peki nereye kadar? Yüzmek 
