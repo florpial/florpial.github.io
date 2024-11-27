@@ -24,7 +24,7 @@ kopuyor. Bu bir yeniden doğuş çığlığı. Yankıları kulak tırmalıyor. A
 Sesler düşünce silüetine bürünüyorlar, düşüncelerim karşılaştığım sesler gibi. Bunların hangileri 
 benim?
 
-Düşüncelerim. Hangileri senin? Hangileri onun? Hangileri bizim? Hangileri sizin? Hangileri onların?
+Düşüncelerim. Hangileri senin? Hangileri onun? Hangileri onların? Hangileri sizin? Hangileri bizim?
 
 Seçtiğim düşünce seçtiğim anda benim olabilir. Özgürlük bu demekse ben özgürlüğe mahkumum. Ses 
 kalabalığını arkama alarak pandomim yapıyorum. Bana ait olanı seçerken her seferinde mış gibi yapıyorum.
