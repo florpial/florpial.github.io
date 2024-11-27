@@ -10,27 +10,27 @@ kapımı tıklatıyorlar. Pervasızlar, ısrarcı baskılarını sürdürüyorla
 Pervaz ve menteşeler var, ve karşımda taktakçılar. Peki neyi tıklatıyorlar? 
 Sorunun cevabı olsun diye kapıyı bulup yerine takacaktım ama açıkçası dikkatimi 
 dağıttılar. Bakmadan önce bilmiyordum ki beni lirizm kostümüyle karşılayacaklar. 
-Kim olsa gafil avlanır; kabarık eteklere rağmen dar kalıplar, ipek taklidi polyester 
-kumaşlar, omuzlara atılmış kürkler, üstünkörü payetli işlemeler göz alıyor,  
+Kim olsa gafil avlanır; kocaman tokalı rugan ayakkabılar, kabarık eteklerin üstüne boğucu dar kalıplar, 
+ipek taklidi polyester kumaşlar, omuzlara atılmış kürkler, üstünkörü payetli işlemeler göz alıyor, 
 kostümün samimiyetsiz işçiliği törpü istiyor, barok fırfırlı yakalar zihnime zımparalar 
 çağırıyor. İğneleyici kostümler, doğal olarak fırfırları silüete iğnelemek istiyorum. 
 
 Zannetmem ki bir kimse karşımda dikilen bu aşırılık abidelerine bakmaktan kendini 
 alıkoyabilsin, kostümler gözümüzü alamayalım diye var. Kendini var etmek için gözlemcinin 
-varlığına ihtiyaç duyan hüzün kostümler sayesinde zihnimi esir alabiliyor, hayallerimi kırıyor, 
+varlığına ihtiyaç duyan hüzün kostümler sayesinde zihnimi esir alabiliyor; hayallerimi kırıyor, 
 beni irite ediyor; bu sürpriz ziyaret benim onur konuğu olduğum bir kostüm partisine 
 dönüşecek diye korkuyorum. Korkuyorum ki konuk olmamı sağlayabilmek için evimi soyacaklar. 
-Evdeki yabancı diye beni soyacaklar, uydurdukları resme uyayım diye. Sonrasında anadan 
+Sonrasında evdeki yabancı diye beni soyacaklar, uydurdukları resme uyayım diye. Anadan 
 doğma bedeni tuval alacaklar, üstüne yağlı boyayla işledikleri resim aynalar çağıracak. 
-Yaratısı boya çatlayana kadar sürecek sanat eseri bağırıyor: bana bak, bana bak! 
-Lirizm hüznü böyle böyle melankoli olduruyor. Lirizmi kahra boğarsak tuval doğru 
-seçilmiş olsa bile kehanetler kendilerini gerçekleştirebilir diye kehanette bulunuyorum; 
-boya çatlayacak, deri yıpranmış ve kuru kalacak, ve beden çıplak. Ümit ederim ki 
+Yaratısı, boya çatlayıncaya kadar, sürecek sanat eseri bağırıyor: bana bak, bana bak! 
+Lirizm hüznü böyle böyle melankoli olduruyor. Lirizmi, üstüne kostüm olduğu kahra boğarsak tuval doğru 
+seçilmiş olsa bile gerçeğin samimiyetini dayanak alabilen kehanetler kendilerini gerçekleştirebilir 
+diye kehanette bulunuyorum: boya çatlayacak, deri yıpranmış ve kuru kalacak, ve beden çıplak. Ümit ederim ki 
 kahrolsun lirizm! 
 
 Derin bir nefes alıyor, ciğerlerimi umduğum idealle dolduruyorum ki ümidim bedenime can, 
 bana cesaret olsun. Nefes verirken gözümü kapatıyor, karşımdaki bariz şeyin
-zihnime selam çakan tek formu yok-kapının dürbün merceğinden yansıyan flu ışıkmış gibi sorular 
+zihnime selam çakan gerçek formu yok-kapının dürbün merceğinden yansıyan flu ışıkmış gibi sorular 
 soruyorum: Kim davet etti onları da geliyorlar? Nasıl bu kadar yüz bulabiliyorlar? Çağırılmadığın 
 yere gitmek ne zamandan beri yakışık alıyor? Misafirlik edebi adabı bilmiyorlar mı?
 Bilsinler istiyorum. Misafirim olsunlar; onları içeriye davet ederim, 
