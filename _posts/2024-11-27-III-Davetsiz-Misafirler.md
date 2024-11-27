@@ -23,7 +23,7 @@ dönüşecek diye korkuyorum. Korkuyorum ki konuk olmamı sağlayabilmek için e
 Sonrasında evdeki yabancı diye beni soyacaklar, uydurdukları resme uyayım diye. Anadan 
 doğma bedeni tuval alacaklar, üstüne yağlı boyayla işledikleri resim aynalar çağıracak. 
 Yaratısı, boya çatlayıncaya kadar, sürecek sanat eseri bağırıyor: bana bak, bana bak! 
-Lirizm hüznü böyle böyle melankoli olduruyor. Lirizmi, üstüne kostüm olduğu kahra boğarsak tuval doğru 
+Lirizm hüznü böyle böyle melankoli olduruyor. Melankolide boğulmaktansa, lirizmi üstüne kostüm olduğu kahra boğarsak tuval doğru 
 seçilmiş olsa bile gerçeğin samimiyetini dayanak alabilen kehanetler kendilerini gerçekleştirebilir 
 diye kehanette bulunuyorum: boya çatlayacak, deri yıpranmış ve kuru kalacak, ve beden çıplak. Ümit ederim ki 
 kahrolsun lirizm! 
