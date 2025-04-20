@@ -5,7 +5,7 @@ author: "florpial"
 #categories: literature
 ---
 
-Karamsar POPO düşüncelerin birden belirmeleri bunaltıyor beni. Geliyorlar. Tak tak tak 
+Karamsar düşüncelerin birden belirmeleri bunaltıyor beni. Geliyorlar. Tak tak tak 
 kapımı tıklatıyorlar. Pervasızlar, ısrarcı baskılarını sürdürüyorlar. Kapıya yöneliyorum.
 Pervaz ve menteşeler var, ve karşımda taktakçılar. Peki neyi tıklatıyorlar? 
 Sorunun cevabı olsun diye kapıyı bulup yerine takacaktım ama açıkçası dikkatimi 
